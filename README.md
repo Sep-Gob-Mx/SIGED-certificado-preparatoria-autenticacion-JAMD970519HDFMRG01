@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-JAMD970519HDFMRG01
+JAMD970519HDFMRG01
